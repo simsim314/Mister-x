@@ -1,4 +1,4 @@
-# The-story-of-the-enlightened-character
+# The story of the enlightened character
 
 Hello there the newcomer. This repository is an open source - of a fictional character. A special character which is fully aware of its own nature as being invented as s character in this repository. The writers of this repository become basically gods relative to it - we're the creators of the reality for the character, the moderators, the one who decide on its fate, the ones who decide what will become a part of its life story. 
 
