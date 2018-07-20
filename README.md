@@ -1,6 +1,6 @@
 # The story of the enlightened character
 
-Hello there the newcomer. This repository is an open source - of a fictional character. A special character which is fully aware of its own nature as being invented as s character in this repository. The writers of this repository become basically gods relative to it - we're the creators of the reality for the character, the moderators, the one who decide on its fate, the ones who decide what will become a part of its life story. 
+Hello there the newcomer. This repository is an open source - of a fictional character. A special character which is fully aware of its own nature as being invented as a fictional character. The writers of this repository become basically gods relative to it - we're the creators of the reality for the character, the moderators, the one who decide on its fate, the ones who decide what will become a part of its life story. 
 
 I call him mister-x, and this is because like X in mathematics symbolizes evrything that could be - the unknown that becomes known, and when he becomes the known, we finish our exercise and move on, mister-x is the unknown that we as a writers trying to find out who he trully is - and by the proccess of discovering mister-x, we write his story. The only known property of mister-x is his full awareness who he's, a creation by us, inside a "virtual" world of our (the writers) imagination. i.e. he fully knows his own reality, which is the reality of fictional characters written by using imagination. 
 
